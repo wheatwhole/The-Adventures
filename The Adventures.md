@@ -51,4 +51,6 @@ Me and frostbite decided to team up and raid a pillager base since it was blocki
 
 ### [sad news about the dogs]
 
-Unfortunately, both of our dogs had died and have not been able to join us in the adventures :(. The cause of my first dogs death was me accidentally hitting him into a lava pool when defending him from a skeleton, then my dog burning alive. There was nothing I could do to save him as the lava killed him too quickly. I went ahead to kill the skeleton, and to this day skeletons are my least favorite, most stupid mobs I know. Later on Frostbite got a dog we would share, and I made sure to protect it from all dangers. When we were moving to t
+Unfortunately, both of our dogs had died and have not been able to join us in the adventures :(. The cause of my first dogs death was me accidentally hitting him into a lava pool when defending him from a skeleton, then my dog burning alive. There was nothing I could do to save him as the lava killed him too quickly. I went ahead to kill the skeleton, and to this day skeletons are my least favorite, most stupid mobs I know. Later on Frostbite got a dog we would share, and I made sure to protect it from all dangers. When we were moving to t (note: coming back to this i probably didnt get to finish this part or save it)
+
+### test
