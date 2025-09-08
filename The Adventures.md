@@ -1,9 +1,11 @@
 # THE ADVENTURES: Continuing the Journal 
 
-## The Return (basically a recap)
-Well, not really part 1. Unfortunately I died, respawned and lost my minecraft journal to the grave. I remember back at my old house (i moved to a new one in the snowy mountains), That I first worked for 20-30 days on a lake house, got a pet dog, and began to work on the huge mineshaft. Later on, I got bored of the house so I took all of my belongings to a far away snow biome and built a house over there. My dog was lost, so all I have is my friends dog. I hope to return to my friends dog and give him a good pet and feed him someday. As for now, I have not made a lot of progress in my new location. I will return to my old house since I miss it.
+## Preservation Note
+Well, not really part 1. Unfortunately I died, respawned and lost my minecraft journal to the grave. I remember a few things:
+- back at my old house (i moved to a new one in the snowy mountains), I worked for 20-30 days on a lake house, got a dog and began to work on the huge mineshaft.
+- Later on, I got bored of the house so I took all of my belongings to a far away snow biome and built a house over there. My dog was lost, so all I have is my friends dog. I hope to return to my friends dog and give him a good pet and feed him someday. As for now, I have not made a lot of progress in my new location. I will return to my old house since I miss it.
 
-Here is a journal entry that was preserved:
+Preserved Entries:
 
 <i>day 69
 [-------------------]
